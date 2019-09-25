@@ -1,1 +1,2 @@
-This is a README file
+Contributors : 
+Marto : musclé, incroyable, te monte en l'air 
